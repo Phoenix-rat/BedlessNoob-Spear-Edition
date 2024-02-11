@@ -1,1 +1,3 @@
 # BedlessNoob-Spear-Edition
+
+3 YIL SONRA AKLIMA GELDİ PAKET RELASELERDE
